@@ -1,3 +1,2 @@
 # carbon
-ideas
-FUCK MOROCCO
+ide
